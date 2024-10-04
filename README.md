@@ -1,0 +1,3 @@
+-  yo im kaidravr the yt guy
+- Im trynna learn coding
+- might make some peak
